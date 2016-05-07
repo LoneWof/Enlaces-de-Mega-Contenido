@@ -13,6 +13,10 @@ https://mega.nz/#F!wEYRTRjL!21m293X7jihzm0s_8BlqnQ
 
 ## Publicacion de Cursos de Devcode | Ojala | Platzi 10/05/2016
 
+### Pack de Regalo previo a publicacion | Manulaes y Libros
+
+https://mega.nz/#F!TZJUnC5K!hm5h8sWITLI0pyb9ZgfVxQ
+
 #### Libros de informatica 
 https://mega.nz/#F!DFFQhZYT!lu8SGn1Yp9-SL48AdWRsig!3Ft0WbbD
 
@@ -31,6 +35,16 @@ clave: !BPjbxMVYOfSuA73AOMTqZKKA7-5rBfvahtoPloJCAOM
 #### Udemy - Desarrollo Web Desde Cero (2013)
 Pass: TheWinnerIsItaimChile
 https://mega.nz/#F!3AwWCZiD!cqEU-SQmfz9kC0ptedWzkQ
+
+#### Udemy - Crea tus temas de Wordpress desde 0
+
+https://mega.nz/#!Ph5DiSZa!gTD4fCL8VrHeqOabmzcw3IsquHWmLVb-E8EcomOTjX4
+
+https://mega.nz/#!q552yTQR!dZ5i-2t6Ztm6OY9Tsk1vNcx-5c_oo4GZ8l8N2uao5Lw
+
+https://mega.nz/#!ToI2zBCa!v5vuneBxiiGFPRMb19sJTjUC3up8H_fRDiGghRNEU6Q
+
+https://mega.nz/#!nsJTACQJ!_N82dqEW4_NoVPAlWqM17BEWVsQx4WhWVnxn2eF6uZw
 
 
 SUSCRIBANSE Y SEGUIMOS 
